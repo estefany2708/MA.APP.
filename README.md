@@ -1,2 +1,0 @@
-# MA.APP.
-Pagina escolar 
